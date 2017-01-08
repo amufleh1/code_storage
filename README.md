@@ -1,1 +1,1 @@
-spell check edit
+stop editing my files
